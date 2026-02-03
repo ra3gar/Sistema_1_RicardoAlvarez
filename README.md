@@ -5,7 +5,7 @@ Este es mi primer Sistema Usando Github
 
 
 
-RESPONDIENDO PREGUNTAS DE LA ACTIVIDAD EN MOODLE:
+RESPONDIENDO PREGUNTAS DE LA ACTIVIDAD EN MOODLE 03-02-2026:
 
    *Mi nombre es RICARDO DE JESÚS Alvarez Palacios
 
